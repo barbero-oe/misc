@@ -57,7 +57,9 @@ madurar en la dimensión comunitaria. Necesita afianzar sus experiencias de
 grupo, que se convierten en la base de la formación, a fin de empezar a vivir y
 a sentirse miembro de una comunidad y de la Iglesia.
 
-### Emblema: El color naranja es símbolo de amistad, signo del calor que se
+### Emblema
+
+El color naranja es símbolo de amistad, signo del calor que se
 comunica. Tiene forma circular porque ese círculo es amistoso y acepta a todos
 los demás; porque no tiene principio ni fin, como Dios, quien es el que le da
 esta forma al grupo. El círculo no tiene aristas, se muestra igual desde todo
